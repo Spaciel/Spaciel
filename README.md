@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on GAME ART LESGOOOOO
 - 📫 How to reach me DISCORD LESSGOOOOO
 - 😄 Pronouns: SHE/HER LESSGOOOOOO
-- ⚡ Fun fact: IM NOT FUNNY LESSGOOOOOOOOOOOOOOOOOOOOOOOOOOO
+- ⚡ Fun fact: IM GAY LESSGOOOOOOOOOOOOOOOOOOOOOOOOOOO
 
 <!---
 Spaciel/Spaciel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
